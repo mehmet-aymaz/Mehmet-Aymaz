@@ -1,1 +1,1 @@
-(c) Mehmet Aymaz
+&#169; Mehmet Aymaz
