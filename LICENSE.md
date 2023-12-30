@@ -1,1 +1,1 @@
-&#169; Mehmet Aymaz
+&#169; Mehmet Aymaz. All rigths reserved
